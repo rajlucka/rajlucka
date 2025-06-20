@@ -1,4 +1,4 @@
-# RAJ LUCKA - AI ENGINEER EXTRAORDINAIRE
+# RAJ LUCKA 
 
 <div align="center">
 
